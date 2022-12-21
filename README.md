@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @zeynab335.
+- 👩‍🎓 I’m Graduted from Computer and Artificial Intelligence Helwan Unversity.
+- 👀 I’m interested in Wed Development.
+- ✍ I’m currently learning New Topics In  Wed Development By ITI.  
+- 📫 How to reach me From https://www.linkedin.com/in/zeinab-mahmoud-0413ba1b5/
